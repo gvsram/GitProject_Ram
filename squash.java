@@ -1,1 +1,0 @@
-Squash file has been created
